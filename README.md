@@ -1,4 +1,4 @@
-- #👋 Hi, I’m @Olamideeomole
+- # 👋 Hi, I’m Omole Temitope Olamide
 - #👀 I’m interested in Data entry and analysis 
 - #🌱  I’m currently learning on how to improve my data analysis skills
 - #💞️ I’m looking to collaborate with Organisations and and small businesses
